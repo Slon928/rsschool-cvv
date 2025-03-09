@@ -1,1 +1,1 @@
-https://Slon928.github.io/rsschool-cv/cv
+https://Slon928.github.io/rsschool-cvv/cvv
